@@ -7,7 +7,7 @@
 
 
 
-- 🔭 I’m currently working as a support member (**Slave**)
+- 🔭 I Don't have a job anymore :(
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
