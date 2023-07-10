@@ -1,13 +1,13 @@
 <p align="center">
  <img src="https://media.tenor.com/SyQD6OI4AKYAAAAC/y2k.gif" alt="Computer man">
 </p>
-<h3 align="center">I work as a slave</h3>
+<h3 align="center">I work as a slave(Not anymore)</h3>
 <p>═══════════════════════════════════════ஜ۩۞۩ஜ════════════════════════════════════════</p>
 
 
 
 
-- 🔭 I Don't have a job anymore :(
+- 🔭 I don't have a job anymore :(
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
